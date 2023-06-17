@@ -1,6 +1,7 @@
-# VOID V5.cc OWNED BY PASSATHOOK
- THANK YOU DRIP#0038 FOR CRACKING AND SHARING THIS SHITTY PASTE
+# VOID V5.cc cracked and exposed by Passathook AKA Medusa.uno
 
- THANK YOU Eisverbot#3183 FOR LETTING ME KNOW ABOUT UR PASTE
++ Video link : https://youtu.be/cjtFTORyWb4
++ Credits : Drip ( Cracker ) , Eisverbot ( Making the paste )
++ Cheat pasted from : notgoodusename/osirisandextra
 
- ORIGINAL SOURCE BY notgoodusename/osirisandextra
+
