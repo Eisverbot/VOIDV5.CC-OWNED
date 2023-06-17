@@ -3,5 +3,6 @@
 + Video link : https://youtu.be/cjtFTORyWb4
 + Credits : Drip ( Cracker ) , Eisverbot ( Making the paste )
 + Cheat pasted from : notgoodusename/osirisandextra
++ Cheat status : OUTDATED
 
 
